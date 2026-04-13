@@ -22,4 +22,4 @@ i hate dry people, misinformation, mischaracterization, being ghosted, being lov
 
 so far, i've made mike wheeler (stranger things), anya (mouthwashing), and boris pavlikovsky (the goldfinch).
 
-i plan on making kylar the loner (dol), ren (14dwy), miles fairchild (the turning), and mika (oc).
+i plan on making kylar the loner (dol), ren (14dwy), so4 (enneagram subtypes), and mika (oc).
