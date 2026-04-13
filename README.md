@@ -17,3 +17,9 @@ don't vent constantly unless we're close. venting every now and then is okay if 
 # dislikes
 
 i hate dry people, misinformation, mischaracterization, being ghosted, being love-bombed, people who can't read the room, people who exclude others, self-diagnosing without doing research, people who brag about addictions or mental health problems, "doubles, dni", toxic non-sharing yumeshippers, people who lack morals, people who say they're a character when they have nothing in common, people who act like i'm their therapist, etc.
+
+# skins
+
+so far, i've made mike wheeler (stranger things), anya (mouthwashing), and boris pavlikovsky (the goldfinch).
+
+i plan on making kylar the loner (dol), ren (14dwy), miles fairchild (the turning), and mika (oc).
